@@ -1,5 +1,7 @@
 ## DIY Paw Balm Recipe
 
+[Source](https://tlcpetfood.com/the-tlc-scoop/diy-paw-balm-recipe/)
+
 Yields approximately 500 ml
 
 __Equipment__
