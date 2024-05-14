@@ -8,7 +8,7 @@ __Ingredients__
 
 - 1 cup warm water
 - ½ cup organic turmeric root powder
-- 1/3 cup organic coconut oil OR 1/3 cup bone broth
+- ⅓ cup organic coconut oil OR ⅓ cup bone broth
 - ½ tablespoon organic freshly ground black pepper
 - 1 tablespoon organic Ceylon cinnamon
 
