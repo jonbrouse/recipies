@@ -14,6 +14,9 @@ __Ingredients__
 
 __Instructions__
 
-Place turmeric powder and water in a small saucepan on low heat on the stovetop. Stir until it forms a paste, usually about 5 minutes. Remove from heat and add the pepper and cinnamon, stirring to mix. Add coconut oil or bone broth and stir well.
+1. Place turmeric powder and water in a small saucepan on low heat on the stovetop. Stir until it forms a paste, usually about 5 minutes. 
+2. Remove from heat and add the pepper and cinnamon, stirring to mix. 
+3. Add coconut oil or bone broth and stir well.
+4. Store in an airtight container in the refrigerator and use within two weeks. It can also be frozen. 
 
-Store in an airtight container in the refrigerator and use within two weeks. It can be frozen. Mix 44 teaspoon for small dogs and up to 1 tablespoon for large dogs in each meal.
+Mix 44 teaspoon for small dogs and up to 1 tablespoon for large dogs in each meal.
