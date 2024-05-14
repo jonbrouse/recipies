@@ -6,11 +6,11 @@ Turmeric is not very well absorbed when eaten, but the absorption is increased w
 
 __Ingredients__
 
-1 cup warm water
-½ cup organic turmeric root powder
-1/3 cup organic coconut oil OR 1/3 cup bone broth
-½ tablespoon organic freshly ground black pepper
-1 tablespoon organic Ceylon cinnamon
+- 1 cup warm water
+- ½ cup organic turmeric root powder
+- 1/3 cup organic coconut oil OR 1/3 cup bone broth
+- ½ tablespoon organic freshly ground black pepper
+- 1 tablespoon organic Ceylon cinnamon
 
 __Instructions__
 
