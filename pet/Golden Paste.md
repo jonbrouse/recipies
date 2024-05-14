@@ -1,6 +1,6 @@
 ## Golden Paste
 
-Turmeric is a root herb that has been studied extensively for its cancer and inflammation-fighting proper-ties, Most of the effect is due to an ingredient called curcumin. It is a powerful anti-oxidant and Qi tonic, reducing stagnation and pain; it has been used to decrease inflammation associated with heart disease, back pain, and arthritis. Studies have shown it may decrease the risk of getting cancer, as well as helping to treat cancer.
+Turmeric is a root herb that has been studied extensively for its cancer and inflammation-fighting proper-ties. Most of the effect is due to an ingredient called curcumin. It is a powerful anti-oxidant and Qi tonic, reducing stagnation and pain; it has been used to decrease inflammation associated with heart disease, back pain, and arthritis. Studies have shown it may decrease the risk of getting cancer, as well as helping to treat cancer.
 
 Turmeric is not very well absorbed when eaten, but the absorption is increased when it is taken with black pepper.
 
